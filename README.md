@@ -7,6 +7,7 @@
 ## Montessori
 - [The Montessori Notebook](https://themontessorinotebook.com/)
 - [Relove Toys](https://relovetoys.com/)
+- [Weaning Table](https://sprout-kids.com/en-ca/products/adjustable-montessori-weaning-chair-table-set)
 
 ### Youtube
 - [Hapa Family](https://www.youtube.com/@HapaFamily)
