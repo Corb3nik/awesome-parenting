@@ -16,6 +16,6 @@
 ### Books
 - [The Montessori Baby](https://www.amazon.ca/dp/1523512407)
 
-## Potty Training
-
+## Communication
+- [Baby Sign Language](https://babysignlanguage.com/)
 - [Elimination Communication (EC)](https://godiaperfree.com/elimination-communication/)
