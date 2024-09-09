@@ -18,4 +18,7 @@
 
 ## Communication
 - [Baby Sign Language](https://babysignlanguage.com/)
+
+## Toileting
+- [Bamboo diapers](https://ecopeaco.ca/)
 - [Elimination Communication (EC)](https://godiaperfree.com/elimination-communication/)
