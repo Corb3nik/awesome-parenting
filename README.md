@@ -18,6 +18,7 @@
 
 ## Communication
 - [Baby Sign Language](https://babysignlanguage.com/)
+- [OPOL](https://en.wikipedia.org/wiki/One_person,_one_language)
 
 ## Toileting
 - [Bamboo diapers](https://ecopeaco.ca/)
