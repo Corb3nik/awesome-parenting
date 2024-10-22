@@ -20,6 +20,7 @@
 ## Communication
 - [Baby Sign Language](https://babysignlanguage.com/)
 - [OPOL](https://en.wikipedia.org/wiki/One_person,_one_language)
+- [Parenting without Saying No](https://www.roshambo.com/blogs/news/parenting-without-saying-no)
 
 ## Toileting
 - [Bamboo diapers](https://ecopeaco.ca/)
