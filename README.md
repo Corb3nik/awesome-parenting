@@ -21,7 +21,7 @@
 - [Baby Sign Language](https://babysignlanguage.com/)
 - [OPOL](https://en.wikipedia.org/wiki/One_person,_one_language)
 - [Parenting without Saying No](https://www.roshambo.com/blogs/news/parenting-without-saying-no)
+- [Elimination Communication (EC)](https://godiaperfree.com/elimination-communication/)
 
 ## Toileting
 - [Bamboo diapers](https://ecopeaco.ca/)
-- [Elimination Communication (EC)](https://godiaperfree.com/elimination-communication/)
