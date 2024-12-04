@@ -23,5 +23,8 @@
 - [Parenting without Saying No](https://www.roshambo.com/blogs/news/parenting-without-saying-no)
 - [Elimination Communication (EC)](https://godiaperfree.com/elimination-communication/)
 
+## Nutrition
+- [Baby-Led Weaning](https://solidstarts.com/baby-led-weaning/)
+
 ## Toileting
 - [Bamboo diapers](https://ecopeaco.ca/)
